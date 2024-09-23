@@ -6,5 +6,4 @@ https://www.figma.com/design/tFmHSaItWu0V9Eo8reTM7E/Burger__Club?m=auto&t=cWm9Xn
 https://docs.google.com/document/d/1E34rG5a_LYScP4X2Tbz75Z68hS45M-9ZlsbYhlD5FfY/edit?usp=sharing
 
 # Презентация:
-[[https://disk.yandex.ru/i/6ye5Haw_yNP6bQ](https://disk.yandex.ru/i/6ye5Haw_yNP6bQ)
-](https://disk.yandex.ru/i/6ye5Haw_yNP6bQ)
+https://disk.yandex.ru/i/6ye5Haw_yNP6bQ
